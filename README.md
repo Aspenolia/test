@@ -10,7 +10,7 @@ $\color{#AD9A90}{\text{S/nonverbal most of the time!， i can seem antisocial、
 
 <p align="center"
    
-$\color{#825435}{\text{when I'm with @FR1Z7 pleaseeee dniuf，i see you've copied this info from me aswell blsuf...}}$
+$\color{#825435}{\text{when I'm with @FR1Z7 pleaseeee dniuf，dni if associated or friends with blsuf.}}$
 
 <p align="center"
    
