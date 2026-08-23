@@ -1,17 +1,47 @@
 # test
 
+<p align="center"
+   
+$\color{#E9DCD1}{\text{I'm hypersensitive with emotions and laugh/get excited really easily but can also get upset really easily. }}$
+
+<p align="center"
+
+$\color{#C4BBB1}{\text{S/nonverbal most of the time!， i can seem antisocial、}}$
+
+<p align="center"
+   
+$\color{#7E5C37}{\text{when I'm with @FR1Z7 pleaseeee dniuf，i see you've copied this info from me aswell blsuf...}}$
+
+<p align="center"
+   
+$\color{#5C2F17}{\text{INFJ-P 1ᴡ2 }}$
+
+<p align="center"
+
+$\color{#330F1C}{\text{Aspen/Azure Wrath irl, fullfic. }}$
+
+<p align="center"<p align="center"><img src="(https://file.garden/anejofeTPXTQkEOz/Untitled932_20260823121859.png)" />
 
 
+
+
+<img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/973fe568-d08f-48e8-a787-be2a48c98404" />
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=New+Tegomin&size=90&duration=3000&pause=300&color=330F1C&center=true&repeat=false&width=1500&height=200&lines=%22+You+ruined+me.+%22+;%22+I+shall+never+forget+that+day.+%22;%22+I+shall+never+be+worthy.%22+;%22I+am.%22+;%22Unlovable.%22+)](https://git.io/typing-svg)
-
-$\color{#57361F}{\text{unwilling. such is what many are. }}$
-
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ    $\color{#A6785A}{\text{No inspo, copying, or color picking on my ponies. }}$
+<p align="center"
    
-   $\color{#78736F}{\text{Notice: the more i hang out at main map, the more azures i see slowly start looking like mine.}}$
-   
-   C4BBB1
+$\color{#57361F}{\text{unwilling and undeserving. such is what many are. }}$
 
-   <img src="[https://cdn.imgchest.com/files/a167d8712a84.gif](https://file.garden/anejofeTPXTQkEOz/IMG_2177.png)" width="20px"> ㅤ  [*strawpage*](https://makkvr0hz.straw.page) ${{\color{#69381A} ♡}}$ [*guns.lol*](https://guns.lol/aspenolia) ${{\color{#C4BBB1} ♡}}$ [*prns*](https://pronouns.cc/@AZVR3WR4TH)ㅤ  ${{\color{#E5C4AA} }}$
+<p align="center"
+   
+   $\color{#7E5C37}{\text{No inspo, copying, or color picking on my ponies， or ANYTHING i make,I've genuinely had panic attacks because of this along with issues involving trust and honesty.}}$
+
+   <p align="center"
+      
+   $\color{#C4BBB1}{\text{Notice: the image above is an edited version of an art piece i do not own, full credits to the original artist! }}$
+   
+   <p align="center"
+   
+   
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3g5osfacsr3xi2jktb6ha3xna&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=5C2F17&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
