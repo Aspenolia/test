@@ -18,7 +18,7 @@ $\color{#5C2F17}{\text{INFJ-P 1ᴡ2 }}$
 
 <p align="center"
 
-$\color{#7A675D}{\text{Aspen/Azure Wrath irl, fullfic. }}$
+$\color{#4F0E06}{\text{Aspen/Azure Wrath irl, fullfic. }}$
 
 <p align="center"<p align="center"><img src="(https://file.garden/anejofeTPXTQkEOz/Untitled932_20260823121859.png)" />
 
