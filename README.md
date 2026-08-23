@@ -1,15 +1,16 @@
 
 <p align="center"
    
-$\color{#E9DCD1}{\text{I'm hypersensitive with emotions and laugh/get excited really easily but can also get upset really easily. }}$
+$\color{#C4BBB1}{\text{I'm hypersensitive with emotions and laugh/get excited really easily but can also get upset really easily. }}$
 
 <p align="center"
 
-$\color{#C4BBB1}{\text{S/nonverbal most of the time!， i can seem antisocial、}}$
+$\color{#AD9A90}{\text{S/nonverbal most of the time!， i can seem antisocial、}}$
+
 
 <p align="center"
    
-$\color{#7E5C37}{\text{when I'm with @FR1Z7 pleaseeee dniuf，i see you've copied this info from me aswell blsuf...}}$
+$\color{#825435}{\text{when I'm with @FR1Z7 pleaseeee dniuf，i see you've copied this info from me aswell blsuf...}}$
 
 <p align="center"
    
@@ -17,7 +18,7 @@ $\color{#5C2F17}{\text{INFJ-P 1ᴡ2 }}$
 
 <p align="center"
 
-$\color{#330F1C}{\text{Aspen/Azure Wrath irl, fullfic. }}$
+$\color{#000000}{\text{Aspen/Azure Wrath irl, fullfic. }}$
 
 <p align="center"<p align="center"><img src="(https://file.garden/anejofeTPXTQkEOz/Untitled932_20260823121859.png)" />
 
