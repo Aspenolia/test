@@ -1,11 +1,11 @@
 
 <p align="center"
    
-$\color{#C4BBB1}{\text{I'm hypersensitive with emotions and laugh/get excited really easily but can also get upset really easily. }}$
+$\color{#C4BBB1}{\text{I'm hypersensitive w/emotions ：laugh/get excited really easily but can also get upset really easily. }}$
 
 <p align="center"
 
-$\color{#AD9A90}{\text{S/nonverbal most of the time!， i can seem antisocial、}}$
+$\color{#AD9A90}{\text{S/nonverbal most of the time! iwc always please  }}$
 
 
 <p align="center"
@@ -14,11 +14,11 @@ $\color{#825435}{\text{when I'm with @FR1Z7 pleaseeee dniuf，dni if associated 
 
 <p align="center"
    
-$\color{#5C2F17}{\text{INFJ-P 1ᴡ2 }}$
+$\color{#5C2F17}{\text{INFJ-P 1ᴡ2 sp6. trust,abandonment, and anger issues. extreme paranoia.<caused by past events }}$
 
 <p align="center"
 
-$\color{#4F0E06}{\text{Aspen/Azure Wrath irl, fullfic. }}$
+$\color{#4F0E06}{\text{Aspen/Azure Wrath irl, fullfic. Same trauma+family relations. }}$
 
 <p align="center"<p align="center"><img src="(https://file.garden/anejofeTPXTQkEOz/Untitled932_20260823121859.png)" />
 
@@ -31,15 +31,15 @@ $\color{#4F0E06}{\text{Aspen/Azure Wrath irl, fullfic. }}$
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=New+Tegomin&size=90&duration=3000&pause=300&color=330F1C&center=true&repeat=false&width=1500&height=200&lines=%22+You+ruined+me.+%22+;%22+I+shall+never+forget+that+day.+%22;%22+I+shall+never+be+worthy.%22+;%22I+am.%22+;%22Unlovable.%22+)](https://git.io/typing-svg)
 <p align="center"
    
-$\color{#57361F}{\text{unwilling and undeserving. such is what many are. }}$
+$\color{#5C2F17}{\text{ unwilling and undeserving. such is what many are. It hurts. }}$
 
 <p align="center"
    
-   $\color{#7E5C37}{\text{No inspo, copying, or color picking on my ponies， or ANYTHING i make,I've genuinely had panic attacks because of this along with issues involving trust and honesty.}}$
+   $\color{#825435}{\text{No inspo, copying, or color picking on ANYTHING I make, I've genuinely had panic attacks because of this.}}$
 
    <p align="center"
       
-   $\color{#C4BBB1}{\text{Notice: the image above is an edited version of an art piece i do not own, full credits to the original artist! }}$
+   $\color{#AD9A90}{\text{ Notice: the image above is an edited version of an art piece I do not own. Credits to the original artist! }}$
    
    <p align="center"
    
