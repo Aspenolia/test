@@ -10,7 +10,7 @@ $\color{#AD9A90}{\text{S/nonverbal most of the time! iwc always please  }}$
 
 <p align="center"
    
-$\color{#825435}{\text{when I'm with @FR1Z7 pleaseeee dniuf，dni if associated or friends with blsuf.}}$
+$\color{#825435}{\text{when I'm with @FR1Z7 please dniuf，dni if associated or friends with blsuf.}}$
 
 <p align="center"
    
@@ -35,7 +35,7 @@ $\color{#5C2F17}{\text{ unwilling and undeserving. such is what many are. It hur
 
 <p align="center"
    
-   $\color{#825435}{\text{No inspo, copying, or color picking on ANYTHING I make, I've genuinely had panic attacks because of this.}}$
+   $\color{#825435}{\text{No inspo, copying, or color picking on ANYTHING that I make, I've genuinely had panic attacks because of this.}}$
 
    <p align="center"
       
