@@ -35,11 +35,11 @@ $\color{#5C2F17}{\text{ unwilling.such is what many are. }}$
 
 <p align="center"
    
-   $\color{#825435}{\text{No inspo, copying, or color picking on ANYTHING that I make, I've genuinely had panic attacks because of this.}}$
+   $\color{#825435}{\text{No inspo, copying, posting, or color picking on ANYTHING that I make, NO EXEPTIONS.}}$
 
    <p align="center"
       
-   $\color{#AD9A90}{\text{ Notice: the image above is an edited version of an art piece I do not own. Credits to the original artist! }}$
+   $\color{#AD9A90}{\text{ Notice: the image above is an art piece I do not own. Credits to the original artist! }}$
    
    <p align="center"
    
