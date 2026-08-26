@@ -1,11 +1,11 @@
 
 <p align="center"
    
-$\color{#C4BBB1}{\text{I'm hypersensitive w/emotions ：laugh/get excited really easily but can also get upset really easily. }}$
+$\color{#C4BBB1}{\text{I'm hypersensitive w/emotions：laugh/get excited really easily but can also get upset really easily. }}$
 
 <p align="center"
 
-$\color{#AD9A90}{\text{S/nonverbal most of the time! iwc always please  }}$
+$\color{#AD9A90}{\text{S/nonverbal most of the time! int freely unless said otherw.}}$
 
 
 <p align="center"
@@ -14,7 +14,7 @@ $\color{#825435}{\text{when I'm with @FR1Z7 please dniuf，dni if associated or 
 
 <p align="center"
    
-$\color{#5C2F17}{\text{INFJ-P 1ᴡ2 sp6. trust,abandonment, and anger issues. extreme paranoia.<caused by past events }}$
+$\color{#5C2F17}{\text{infp 1ᴡ2 sp6. }}$
 
 <p align="center"
 
@@ -39,7 +39,7 @@ $\color{#5C2F17}{\text{ unwilling.such is what many are. }}$
 
    <p align="center"
       
-   $\color{#AD9A90}{\text{ Notice: the image above is an art piece I do not own. Credits to the original artist! }}$
+   $\color{#AD9A90}{\text{ the image above is an art piece I do not own. Credits to the original artist. }}$
    
    <p align="center"
    
