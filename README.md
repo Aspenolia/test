@@ -42,7 +42,8 @@ $\color{#5C2F17}{\text{ unwilling. such is what many are. }}$
    $\color{#AD9A90}{\text{ the image above is an art piece I do not own. Credits to the original artist. }}$
    
    <p align="center"
-   
-   
+      
+ $\color{#C4BBB1}{\text{Everyone deserves a second chance, Even at the cause of sacrificing oneself for them. }}$
+      
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3g5osfacsr3xi2jktb6ha3xna&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=5C2F17&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
