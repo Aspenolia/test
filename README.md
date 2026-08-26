@@ -35,7 +35,7 @@ $\color{#5C2F17}{\text{ unwilling. such is what many are. }}$
 
 <p align="center"
    
-   $\color{#825435}{\text{No inspo, copying, posting, or color picking on ANYTHING that I make, NO EXEPTIONS.}}$
+   $\color{#825435}{\text{No inspo, copying, posting, or color picking on ANYTHING that I make, NO EXEPTIONS WHATSOEVER.}}$
 
    <p align="center"
       
@@ -44,6 +44,7 @@ $\color{#5C2F17}{\text{ unwilling. such is what many are. }}$
    <p align="center"
       
  $\color{#C4BBB1}{\text{Everyone deserves a second chance, Even at the cause of sacrificing oneself for them. }}$
-      
+ <p align="center"
+         
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3g5osfacsr3xi2jktb6ha3xna&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=5C2F17&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
