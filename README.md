@@ -39,7 +39,7 @@ $\color{#5C2F17}{\text{ unwilling. such is what many are. }}$
 
    <p align="center"
       
-   $\color{#AD9A90}{\text{ the image above is an art piece I do not own. Credits to the original artist. }}$
+   $\color{#AD9A90}{\text{the image above is an art piece I do not own. Credits to the original artist.}}$
    
    <p align="center"
       
