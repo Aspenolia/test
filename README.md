@@ -14,11 +14,11 @@ $\color{#825435}{\text{when I'm with @FR1Z7 please dniuf，dni if associated or 
 
 <p align="center"
    
-$\color{#5C2F17}{\text{infp 1ᴡ2 sp6. }}$
+$\color{#5C2F17}{\text{infp 1ᴡ2 sp6. ambiverted leaning intro,}}$
 
 <p align="center"
 
-$\color{#4F0E06}{\text{Aspen/Azure Wrath irl, fullfic. }}$
+$\color{#4F0E06}{\text{Aspen/Azure Wrath irl, fullfic. dbls dni strictly~}}$
 
 <p align="center"<p align="center"><img src="(https://file.garden/anejofeTPXTQkEOz/Untitled932_20260823121859.png)" />
 
@@ -31,7 +31,7 @@ $\color{#4F0E06}{\text{Aspen/Azure Wrath irl, fullfic. }}$
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=New+Tegomin&size=90&duration=3000&pause=300&color=330F1C&center=true&repeat=false&width=1500&height=200&lines=%22+You+ruined+me.+%22+;%22+I+shall+never+forget+that+day.+%22;%22+I+shall+never+be+worthy.%22+;%22I+am.%22+;%22Unlovable.%22+)](https://git.io/typing-svg)
 <p align="center"
    
-$\color{#5C2F17}{\text{ unwilling.such is what many are. }}$
+$\color{#5C2F17}{\text{ unwilling. such is what many are. }}$
 
 <p align="center"
    
