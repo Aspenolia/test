@@ -18,7 +18,7 @@ $\color{#5C2F17}{\text{infp 1ᴡ2 sp6. ambiverted leaning intro,}}$
 
 <p align="center"
 
-$\color{#4F0E06}{\text{Aspen/Azure Wrath irl, fullfic. ships strictly dni}}$
+$\color{#4F0E06}{\text{Aspen/Azure Wrath irl, fullfic. ships and doubles strictly dni}}$
 
 <p align="center"<p align="center"><img src="(https://file.garden/anejofeTPXTQkEOz/Untitled932_20260823121859.png)" />
 
